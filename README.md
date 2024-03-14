@@ -1,1 +1,1 @@
-# lnxhigh.github.io
+# Learners' High
